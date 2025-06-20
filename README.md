@@ -1,1 +1,1 @@
-# umagon.github.io
+# Can-Go!
